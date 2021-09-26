@@ -1,0 +1,1 @@
+A way to help people with mental health issues is to introduce them to a hobby, club, or freind. Some examples is a new sport, or instrument, or just take them somewhere new where they can find purpose and sucuess. 
